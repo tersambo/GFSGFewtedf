@@ -34,3 +34,5 @@ Embora a possibilidade de obter várias declarações para o financiamento de se
 <a href="https://carepmu.substack.com/p/anticiper-votre-financement">https://carepmu.substack.com/p/anticiper-votre-financement</a>
 <a href="https://www.notateslaapp.com/community/members/caceane.293/about">https://www.notateslaapp.com/community/members/caceane.293/about</a>
 <a href="https://codebeautify.org/htmlviewer/y22ad8fa2">https://codebeautify.org/htmlviewer/y22ad8fa2</a> https://ctftime.org/writeup/35541 https://www.theyashelf.com/antecipando-o-financiamento-do-seu-equipamento-de-desenvolvimento/ https://github.com/tersambo/GFSGFewtedf/blob/main/README.md
+https://zenodo.org/communities/jjgkhtdikutlut/?page=1&size=20
+https://www.scoop.it/topic/sgsgbsw
